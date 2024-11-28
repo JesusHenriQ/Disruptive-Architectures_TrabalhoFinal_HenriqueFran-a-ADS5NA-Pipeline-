@@ -1,1 +1,1 @@
-# Disruptive-Architectures_TrabalhoFinal_HenriqueFran-a-ADS5NA-Pipeline-
+# Disruptive-Architectures_TrabalhoFinal_HenriqueFran-ADS5NA-Pipeline-
